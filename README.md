@@ -1,0 +1,1 @@
+# consolemagaz.github.io
